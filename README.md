@@ -4,7 +4,7 @@
 #### RIP KAZRIL
 ##### RIP KAZACK
 ###### RIP 4MUSIC
-####### orumma my slave
+###### orumma my slave
 
 
 ATTENTION : N'OUBLIEZ PAS QUE BABY  & KPRI & TAKEFY VOUS BAISERONT TOUJOURS 
